@@ -1,5 +1,5 @@
 # 💫 About Me:
-i'am currently studying<br>
+i'am currently studying in B.Tech in 3rd Year <br>
 
 
 ## 🌐 Socials:
